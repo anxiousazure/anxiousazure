@@ -29,7 +29,7 @@ Other things about me...
 
 Oh!
 
-I really like to write in me free time, I'm especially fond of character creation. Please ask about my OCs or tell me about yours.
+I really like to write in my free time, I'm especially fond of character creation. Please ask about my OCs or tell me about yours.
 
 I also draw on occasion and sometimes dabble in nail art.
 
