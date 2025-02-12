@@ -5,7 +5,7 @@ You can call me Azure, Az, Anxious... I answer to most things, including whichev
 
 I am an adult, so - I don't know, be warned? What do I even say here...
 
-I use he/they/it pronouns mainly, but if you wanna use some of the neos I hoard, check out ![HERE](https://en.pronouns.page/@anxiousazure)
+I use he/they/it pronouns mainly, but if you wanna use some of the neos I hoard, check out [HERE](https://en.pronouns.page/@anxiousazure)
 
 Always feel free to interact I promise I'm more scared of you than you are of me most times,,,
 
