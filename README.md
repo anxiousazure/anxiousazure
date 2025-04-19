@@ -23,6 +23,8 @@ I'm super fixated on the Xianzhou Alliance lore but also Amphoreus has me in a c
 
 I also really really like Subnautica, it's probably one of my favorite games of all time. I also log a completely reasonable (it is not at all reasonable) amount of hours in Stardew Valley!
 
+Also also!! I have. recently. gotten into Cookie Run Kingdom. Which initially was supposed to be just a fun little idle game for me. And then I got invested in the lore of the cookie game. So. Uh. Smiles. Whoops???
+
 ![Fan Art Comment Deco_DoDoPonArt](https://github.com/user-attachments/assets/3bce9ce4-ed0e-4cf7-a7a4-b059dd2887f7)
 
 Other things about me...
