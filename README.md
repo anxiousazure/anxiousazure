@@ -1,5 +1,5 @@
-Greetings from the Xianzhou Luofu! I'm still stuck here chewing at the lore.
-![alttext](https://64.media.tumblr.com/e071708d6180f3d39b4e0d2e52b4e71d/bb9f6ba621c1dd6b-09/s1280x1920/fe308ec9bcf682f50a9fca019df95bae5aa6b874.png)
+Send help I'm stuck in this gods-forsaken maze several years too late.
+![minecraft-overgrown-corridor](https://static.planetminecraft.com/files/image/minecraft/project/2024/787/18293364_l.webp))
 
 You can call me Azure, Az, Anxious... I answer to most things, including whichever character my avatar is!
 
@@ -9,7 +9,7 @@ I use he/they/it pronouns mainly, but if you wanna use some of the neos I hoard,
 
 Always feel free to interact I promise I'm more scared of you than you are of me most times,,,
 
-![Comment Deco_Blade](https://github.com/user-attachments/assets/7ef7d4e6-bd69-41ed-b2c4-748e1f8676e5)
+![minecraft-stone-maze-hallway](https://pbs.twimg.com/media/FYcmuvlX0AQG9Hu?format=jpg&name=4096x4096)
 
 Okay, I should... Talk about interests, right? That's a thing people do.
 
@@ -17,17 +17,17 @@ Uh.
 
 Oh no.
 
-If it wasn't obvious I really like Honkai Star Rail! Several of the characters live rent free in my head, hehe.
-
-I'm super fixated on the Xianzhou Alliance lore but also Amphoreus has me in a chokehold so. Please please please I wanna talk about it. Chatter to me please.
-
-I also really really like Subnautica, it's probably one of my favorite games of all time. I also log a completely reasonable (it is not at all reasonable) amount of hours in Stardew Valley!
+If it wasn't obvious I really like Outsiders SMP! Yeah I got into it several years late but it has me in a deathgrip. I live in the maze now.
 
 And!! The other current hyperfixation is Vampires SMP! It's got me in a chokehold and it is so so sooo interesting to me... chewing excitedly on the characters and the lore...
 
-So I'm a liar. I watched all of Owengejuice's Outsiders SMP POV and i guess i live in the maze now. um. send help. or just talk to met about it please.
+I also really really like Subnautica, it's probably one of my favorite games of all time. I also log a completely reasonable (it is not at all reasonable) amount of hours in Stardew Valley!
 
-![Fan Art Comment Deco_DoDoPonArt](https://github.com/user-attachments/assets/3bce9ce4-ed0e-4cf7-a7a4-b059dd2887f7)
+I also like Honkai Star Rail! Several of the characters live rent free in my head, hehe.
+
+My main interest is the Xianzhou Alliance lore but I like most of it. Please please please I wanna talk about it. Chatter to me please.
+
+![outsiders-smp-clearing](https://pbs.twimg.com/media/FYXh-wXWQAAwDiE?format=jpg&name=large)
 
 Other things about me...
 
@@ -37,7 +37,7 @@ I really like to write in my free time, I'm especially fond of character creatio
 
 I also draw on occasion and sometimes dabble in nail art.
 
-![Comment Deco_Dan Heng IL](https://github.com/user-attachments/assets/b6d477c5-ac39-468e-80c3-1eacfee2d5e8)
+![outsiders-smp-gate-wall](https://i.pinimg.com/736x/21/4e/a5/214ea5ea85c225fb2430ac0650dfdbe3.jpg)
 
 I have memory issues so if I'm talking about the same thing over and over. I am so sorry I do not remember.
 
