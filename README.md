@@ -19,7 +19,7 @@ Oh no.
 
 If it wasn't obvious I really like Outsiders SMP! Yeah I got into it several years late but it has me in a deathgrip. I live in the maze now.
 
-And!! The other current hyperfixation is Vampires SMP! It's got me in a chokehold and it is so so sooo interesting to me... chewing excitedly on the characters and the lore...
+And!! The other current hyperfixation is Vampires SMP! It's got me in a chokehold and it is so so sooo interesting to me... chewing excitedly on the characters and the lore... Also Bannerfall!! Bannerfall my beloved I love me a medieval fantasy...
 
 I also really really like Subnautica, it's probably one of my favorite games of all time. I also log a completely reasonable (it is not at all reasonable) amount of hours in Stardew Valley!
 
