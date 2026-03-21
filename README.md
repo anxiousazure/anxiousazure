@@ -19,7 +19,7 @@ Oh no.
 
 If it wasn't obvious I really like Outsiders SMP! Yeah I got into it several years late but it has me in a deathgrip. I live in the maze now.
 
-And!! The other current hyperfixation is Lifesteal SMP! Also Unstable Universe, I am making my way through it slowly and really really like it so far! Though I've got a ways to go to catch up, heh...
+And!! The other current hyperfixation is Lifesteal SMP! Also Unstable Universe, I am making my way through it slowly and really really like it so far! Though I've got a ways to go to catch up, heh... Also. Decayed and Decrepit. Oh I love me a good zombie apocalpyse story...
 
 I also really really like Subnautica, it's probably one of my favorite games of all time. I also log a completely reasonable (it is not at all reasonable) amount of hours in Stardew Valley!
 
