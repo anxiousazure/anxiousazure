@@ -24,10 +24,6 @@ And!! The other current hyperfixation Unstable Universe, I am making my way thro
 
 I also really really like Subnautica, it's probably one of my favorite games of all time. I also log a completely reasonable (it is not at all reasonable) amount of hours in Stardew Valley!
 
-I also like Honkai Star Rail! Several of the characters live rent free in my head, hehe.
-
-My main interest is the Xianzhou Alliance lore but I like most of it. Please please please I wanna talk about it. Chatter to me please.
-
 <img width="1176" height="663" alt="Screenshot 2026-06-11 194736" src="https://github.com/user-attachments/assets/de2ecf4e-322d-4315-86cc-867d29bc2301" />
 
 Other things about me...
